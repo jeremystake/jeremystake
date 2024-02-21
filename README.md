@@ -5,5 +5,5 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: for me
-- today my birthday cool day
+- today my birthday cool day monday
 
