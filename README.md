@@ -6,5 +6,5 @@
 - 😄 Pronouns: mountines life
 - ⚡ Fun fact: for me
 - today my birthday cool day monday
-- clay and funny
+- clay and funny weekend
 
