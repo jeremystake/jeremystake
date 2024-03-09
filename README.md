@@ -10,3 +10,4 @@
 - network one
 - schretcher papa carlo
 - do you have a defy?
+- yes
