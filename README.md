@@ -10,4 +10,4 @@
 - network one
 - schretcher papa carlo
 - do you have a defy?
-- yes counter pers
+- yes counter pers drotua
