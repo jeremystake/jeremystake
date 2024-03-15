@@ -6,8 +6,4 @@
 - 😄 Pronouns: mountines life
 - ⚡ Fun fact: for me
 - today my birthday cool day monday
-- clay and funny weekend
-- network one
-- schretcher papa carlo
-- do you have a defy?
-- yes counter pers drotua
+- clay and funny weekend.
