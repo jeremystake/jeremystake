@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on dodo
 - 📫 How to reach me ...
 - 😄 Pronouns: mountines life
-- ⚡ Fun fact: for me
+- ⚡ Fun fact: for me fokus
 - today my birthday cool day monday
 - clay and funny weekend.
