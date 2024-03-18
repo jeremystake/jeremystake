@@ -6,4 +6,4 @@
 - 😄 Pronouns: mountines life
 - ⚡ Fun fact: for me fokus
 - 👀 today my birthday cool day monday
-- 👀 clay and funny weekend.
+- ⚡ Funy name
