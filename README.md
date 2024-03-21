@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on dodo
 - 📫 How to reach me ...
-- 😄 Pronouns: mountines life
+- 😄 Pronouns: mountines life bora
 - ⚡ Fun fact: for me fokus
 - 👀 today my birthday cool day monday
 - ⚡ Funy name ferko
