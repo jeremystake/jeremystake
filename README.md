@@ -7,4 +7,4 @@
 - ⚡ Fun fact: for me fokus
 - 👀 today my birthday cool day monday
 - ⚡ Funy name ferko
--  make me feel
+-  make me feel you want
