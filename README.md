@@ -6,5 +6,5 @@
 - 😄 Pronouns: mountines life bora
 - ⚡ Fun fact: for me fokus
 - 👀 today my birthday cool day monday
-- ⚡ Funy name fergenson
+- ⚡ Funy name fergenson nine
 -  make me feel you want staked
