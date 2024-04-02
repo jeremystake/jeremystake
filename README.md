@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning note ...
 - 💞️ I’m looking to collaborate on dodo
 - 📫 How to reach me ... fokus pokus
-- 😄 Pronouns: mountines life bora
+- 😄 Pronouns: mountines life borat
 - ⚡ Fun fact: for me fokus
 - 👀 today my birthday cool day monday
 - ⚡ Funy name fergenson nine
