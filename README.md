@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on dodo
 - 📫 How to reach me ... fokus pokus
 - 😄 Pronouns: mountines life borat
-- ⚡ Fun fact: for me fokus
+- ⚡ Fun fact: for me fokus enjoy
 - 👀 today my birthday cool day monday
 - ⚡ Funy name fergenson nine six
 -  make me feel you want staked early
