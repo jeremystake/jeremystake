@@ -2,7 +2,7 @@
 - 👀 I’m interested in app and game dapps
 - 🌱 I’m currently learning note ...
 - 💞️ I’m looking to collaborate on dodo
-- 📫 How to reach me ... fokus pokus
+- 📫 How to reach me ... fokus pokus 6082 l0
 - 😄 Pronouns: mountines life borat
 - ⚡ Fun fact: for me fokus enjoy
 - 👀 today my birthday cool day monday
