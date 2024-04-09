@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jeremystake
 - 👀 I’m interested in app and game dapps
-- 🌱 I’m currently learning note ...
+- 🌱 I’m currently learning notefication ...
 - 💞️ I’m looking to collaborate on dodo
 - 📫 How to reach me ... fokus pokus 6082 l0
 - 😄 Pronouns: mountines life borat
