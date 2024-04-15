@@ -9,3 +9,4 @@
 - ⚡ Funy name fergenson nine six
 -  make me feel you want staked early
 - opbnb mainet sbt token
+- perspective
