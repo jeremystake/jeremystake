@@ -10,3 +10,4 @@
 -  make me feel you want staked early
 - opbnb mainet sbt token
 - perspective native
+- pirates online
