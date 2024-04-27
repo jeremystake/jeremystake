@@ -9,7 +9,7 @@
 - ⚡ Funy name fergenson nine six
 -  make me feel you want staked early
 - opbnb mainet sbt token
-- perspective native
+- perspective native bridge
 - pirates online legion 5
 - excellent boock headquarters
 - antibiotic probiotic nimesulid
