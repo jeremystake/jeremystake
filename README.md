@@ -8,7 +8,7 @@
 - 👀 today my birthday cool day monday
 - ⚡ Funy name fergenson nine six
 -  make me feel you want staked early
-- opbnb mainet sbt token karavan
+- opbnb mainet sbt token karavan meme
 - perspective native bridge nobody
 - pirates online legion 5 down sub
 - excellent boock headquarters
