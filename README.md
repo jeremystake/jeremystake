@@ -18,3 +18,4 @@
 - twix and bounty programm another inferno
 - pixels four next up fox upload
 - fresh baza avatar rocky balboo goerli
+- friendly
