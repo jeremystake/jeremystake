@@ -16,6 +16,6 @@
 - blum boke leo king compound set approve
 - azbuka Morze ATM argentum stone snales
 - twix and bounty programm another inferno
-- pixels four next up fox upload
+- pixels four next up fox upload becon
 - fresh baza avatar rocky balboo goerli
 - friendly
