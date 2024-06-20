@@ -10,7 +10,7 @@
 -  make me feel you want staked early
 - opbnb mainet sbt token karavan meme frog
 - perspective native bridge nobody
-- pirates online legion 5 down sub
+- pirates online legion 5 down big sub
 - excellent boock headquarters python
 - antibiotic probiotic mini quadro capture
 - blum boke leo king compound set approve
