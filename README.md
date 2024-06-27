@@ -14,7 +14,7 @@
 - excellent boock headquarters python
 - antibiotic probiotic mini quadro capture
 - blum boke leo king compound set approve
-- azbuka Morze ATM argentum stone snales
+- azbuka Morze ATM argentum stone snales blur
 - twix and bounty programm another inferno
 - pixels four next up fox upload becon
 - fresh baza avatar rocky balboo goerli
