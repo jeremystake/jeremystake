@@ -6,7 +6,7 @@
 - 😄 mountines life borat
 - ⚡ Fun fact: for me fokus enjoy enemy
 - 👀 today my birthday cool day monday
-- ⚡ Funy name fergenson nine six
+- ⚡ Funy name fergenson nine six time
 -  make me feel you want staked early
 - opbnb mainet sbt token karavan meme frog
 - perspective native bridge nobody mask
