@@ -18,4 +18,4 @@
 - twix and bounty programm another inferno
 - pixels four next up fox upload becon arb scan proof
 - fresh baza avatar rocky balboo goerli change pass
-- 😄😄😄 friendly middle hunt bazar short offtime
+- 😄😄 friendly middle hunt bazar short offtime
